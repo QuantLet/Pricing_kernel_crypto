@@ -1,1 +1,0 @@
-# Pricing_kernel_crypto
